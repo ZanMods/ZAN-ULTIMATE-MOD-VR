@@ -8,7 +8,7 @@ Main de l'âme Violette / Soul Hand Puprle
 Main Céleste Violette / God Hand Puprle
 Main Celeste Violette Evoluée / God Hand Purple Evolved
 
-Soleil Sanglant / Red Solar Flex
+Soleil Sanglant / Red Solar Flare
 Tir du Neant / Void Shot
 Dernier Recours DD, Last Resort DD
 
